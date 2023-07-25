@@ -19,4 +19,4 @@ Email: petr.kurshakov@yandex.ru
 
 LinkedIn: https://www.linkedin.com/in/petr-kurshakov-131460275
 
-Телеграмм: @petr_kurshakov
+Телеграмм: @petr_kurshakov.
